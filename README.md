@@ -4,3 +4,5 @@ C# ile tasarlandı
 Tasarlayan : Technoreis
 instagram : @technoreis
 Youtube : technoreis
+
+İzlemek isterseniz : https://youtu.be/wnN54J1Xixk
